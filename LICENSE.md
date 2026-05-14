@@ -1,4 +1,4 @@
-# 
+# Pixelmator Pro for macOS updated Panel: layer styles & collaboration offers the most advanced Pixelmator Pro for macOS panel, with layer styles and collaboration. Ideal for
 
 
 
